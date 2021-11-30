@@ -1,1 +1,1 @@
-# Penggajian
+# Contoh Program Penggajian Tomi Panggabean
